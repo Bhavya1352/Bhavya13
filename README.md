@@ -10,7 +10,15 @@
 
 - 💬 Ask me about **HTML, CSS, GitHub, and Design**
 
-- 📫 How to reach me **bhavyamishra@example.com**
+- 📫 How to reach me **bhavyamishra698@gmail.com"
+-
+-
+-
+-
+-
+-
+-
+-
 
 ---
 
